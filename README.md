@@ -2,7 +2,7 @@
 - 👀 I’m interested in sports and music lolll
 - 🌱 I’m currently learning nothing :)
 - 💞️ I’m looking to collaborate on chickennn :I
-- 📫 How to reach me secrect :I
+- 📫 How to reach me :secrect :I
 - 😄 Pronouns: she/her :)
 - ⚡ Fun fact: Chicken Nugget :I
 
